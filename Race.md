@@ -23,4 +23,19 @@
 ### Day 25 to 28:
 ![image](https://github.com/user-attachments/assets/93fe0d93-2a30-4c9a-8bfa-9dfc81691b3f)
 
+### Day 28 to 31:
+![image](https://github.com/user-attachments/assets/b2432b12-41c2-4e31-b170-7ca6a005620a)
+
+### Day 31 to 36: 
+![image](https://github.com/user-attachments/assets/ab0325eb-fbcd-4cc4-b601-8afcdfdc7d40)
+
+### Day 36 to 51: 
+![image](https://github.com/user-attachments/assets/52a70e56-e2d2-426a-acc1-f610f758f35c)
+
+### Day 51 to 64: 
+![image](https://github.com/user-attachments/assets/c848e288-04f2-408d-ac81-b8bb8fe83398)
+
+### Day 64 to 72: 
+![image](https://github.com/user-attachments/assets/99d3b500-c41f-4547-9f28-cf4ad0ce92a2)
+
 
