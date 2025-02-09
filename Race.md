@@ -44,4 +44,6 @@
 ### Day 64 to 72: 
 ![image](https://github.com/user-attachments/assets/99d3b500-c41f-4547-9f28-cf4ad0ce92a2)
 
+### Day 72 to 84: 
+![image](https://github.com/user-attachments/assets/d352337b-f703-4c7f-9b23-b2a88e6e1799)
 
